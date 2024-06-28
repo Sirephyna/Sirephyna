@@ -1,6 +1,6 @@
 ![image](https://github.com/Sirephyna/Sirephyna/assets/174101025/ec1044ee-b3a7-4971-b57e-c9c9f95344ad) ![image](https://github.com/Sirephyna/Sirephyna/assets/174101025/18e44b34-6047-4eeb-8029-4ca07dce437c) 
 
-![e1817b32](https://github.com/Sirephyna/Sirephyna/assets/174101025/d9110825-1709-45e8-b780-afe5544a7855). . . ‧₊˚. 𝗔 𝗯𝗹𝗲𝘀𝘀𝗶𝗻𝗴 𝗮𝗻𝗱 𝗮 𝗰𝘂𝗿𝘀𝗲. ‧₊˚. . .  ꒰    . ۫ ꣑ৎ   . 𝗔𝗸𝗶𝗿𝗮 ,, 𝗦𝗵𝗲/𝗛𝗲𝗿/𝗛𝗲𝗿𝘀  ꒱
+![e1817b32](https://github.com/Sirephyna/Sirephyna/assets/174101025/d9110825-1709-45e8-b780-afe5544a7855). . . ‧₊˚. 𝗔 𝗯𝗹𝗲𝘀𝘀𝗶𝗻𝗴 𝗮𝗻𝗱 𝗮 𝗰𝘂𝗿𝘀𝗲. ‧₊˚. . .  ꒰    . ۫ ꣑ৎ   . 𝗔𝗸𝗶𝗿𝗮 ,, 𝗦𝗵𝗲/𝗛𝗲𝗿/𝗛𝗲𝗿𝘀   ꒱. . . ✦
 
 
 ![image](https://github.com/Sirephyna/Sirephyna/assets/174101025/c71de988-8376-4d42-ace9-cf9a6ecd88d1)
