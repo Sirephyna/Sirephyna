@@ -11,3 +11,6 @@
  
 
 ![tumblr_b3d15bc35458958371212ec4f6cac344_6e82530f_640](https://github.com/user-attachments/assets/a682aff8-b051-4e1a-aa2c-80c58445386d)
+
+——— ౿  ׂ   ִ     ♡⁠˖   ⁀   ˳ ⊹⠀⏱ 𝗗𝗶𝘃𝗶𝗱𝗲𝗿
+credits :: [𝙩𝙝𝙞𝙚𝙛𝙨𝙢𝙖𝙨𝙠](https://www.tumblr.com/thiefsmask?source=share)
