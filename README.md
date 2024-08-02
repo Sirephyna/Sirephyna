@@ -1,7 +1,7 @@
 ![tumblr_af975373e54f7584d1f0a960bd7bfd54_1d6959c6_640](https://github.com/user-attachments/assets/2ef1bc66-9e8b-463f-b1fe-816f36b74965)
 
 ————— 𝗔𝗸𝗶𝗿𝗮 • 𝗣𝗲𝗮𝗿𝗹𝗮 —————
-———— . . . She ๋࣭⭑ֶֶֶָָָ֢֢֢𖹭 Her . . . ————
+———— . . . She -`𖹭´- Her . . . ————
 
 𑁍ࠬܓ      C+H friendly :: Whisp to give me a message since im afk or offtab most of the time ๋࣭⭑  
 
