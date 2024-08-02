@@ -7,6 +7,6 @@
 
 𝗧𝗵𝗲 𝗰𝗵𝗼𝗶𝗿 𝘀𝗮𝗻𝗴 𝗮 𝗺𝗲𝗹𝗮𝗻𝗰𝗵𝗼𝗹𝗶𝗰 𝗵𝘆𝗺𝗻 . . .
 
-๋࣭ ⭑ 📜 ꒰ 𝗟𝗮𝘂𝗳𝗲𝘆 𝗮𝗻𝗱 𝗡𝗲𝘄𝗝𝗲𝗮𝗻𝘀 >𝗢< ⁠꒱ ୨ৎ.
+๋࣭ ⭑ 📜 ꒰ 𝗟𝗮𝘂𝗳𝗲𝘆 𝗮𝗻𝗱 𝗡𝗲𝘄𝗝𝗲𝗮𝗻𝘀 >𝗢< ⁠꒱ ୨ৎ. She ๋࣭⭑ Her ⋮ જ⁀➴ A cupcake with no frosting . . . 
 
 ![tumblr_b3d15bc35458958371212ec4f6cac344_6e82530f_640](https://github.com/user-attachments/assets/a682aff8-b051-4e1a-aa2c-80c58445386d)
