@@ -1,1 +1,1 @@
-ﾉ★ Thats not skibidi of you andrei ily bro
+ﾉ★ Thats not skibidi of you andrei, ily bro
