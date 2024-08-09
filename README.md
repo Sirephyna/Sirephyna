@@ -1,2 +1,1 @@
-ﾉ★ Lost through space and time... ♡
-Read me is a wip
+ﾉ★ Thats not skibidi of you andrei ily bro
